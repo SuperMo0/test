@@ -1,1 +1,1 @@
-#toward microsoft
+if you can sleep the night before then you should quit
